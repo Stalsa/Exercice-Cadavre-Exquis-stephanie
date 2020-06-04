@@ -13,3 +13,6 @@ Malheureusement le poulet de KFC était trop fort, RIP.bis
 Il decide alors de s en prend au chicken nugget.  
 Le combat est rude mais il finit par l'emporter.
 Gloire au petit poulet!  
+Pour célébrer sa victoire, il invita tous les poulets à venir manger des graines.  
+Il était content car il savait enfin ce que ça faisait d'avoir des amis.  
+Suite à sa victoire, une statue a été faite à son image pour se souvenir qu'il ne faut jamais perdre espoir.

@@ -10,3 +10,6 @@ il commence donc tous simplement une partie de carte avec les poulets celebres .
 Et vu que le poulet de KFC était entrain de tricher
 Il ce leva et commence à ce battre avec
 Malheureusement le poulet de KFC était trop fort, RIP.bis
+Il decide alors de s en prend au chicken nugget.  
+Le combat est rude mais il finit par l'emporter.
+Gloire au petit poulet!  
